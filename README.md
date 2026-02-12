@@ -1,2 +1,2 @@
-# Self-intro
-[Click here to watch my introduction video](https://github.com/sonarekanak1-ks2005/Self-intro/blob/main/"C:\Users\Asus\Pictures\Camera Roll\intro.mp4.mp4")
+## Self Introduction Video
+https://drive.google.com/file/d/1M6nQY260NfBk2GtkImbUr2bjGUlS2eIp/view?usp=sharing
